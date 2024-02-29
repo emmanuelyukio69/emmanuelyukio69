@@ -1,4 +1,4 @@
-### Salve salve, seja bem vindo ao meu perfil 🥛
+### Salve salve, seja bem vindo ao meu perfil 
 
 Meu nome é Emmanuel
 
